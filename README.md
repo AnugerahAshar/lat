@@ -1,0 +1,1 @@
+ini folder isinya cuman latihan sehari-hari
